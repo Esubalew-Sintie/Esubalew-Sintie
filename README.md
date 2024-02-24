@@ -14,7 +14,7 @@
 
 - 💬 Ask me about **web development**
 
-- 📫 How to reach me **esubalewsintie4@gmail.com**
+- 📫 How to reach me **esubalewsintie1302@gmail.com**
 
 - ⚡ Fun fact **I am funny.**
 
